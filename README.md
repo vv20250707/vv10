@@ -23,4 +23,4 @@
 如果你正在寻找一个稳定、免费的日本AV在线观看平台，试试我们推荐的这些站点。这里有最全的影片资源，最热门的女优视频，以及最清晰、不卡顿的高清播放体验，让你随时随地都能享受顶级的看片乐趣。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vv20250707/vv10）</span>
